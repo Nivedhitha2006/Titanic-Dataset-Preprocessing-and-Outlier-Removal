@@ -68,14 +68,6 @@ Nivedhitha Kumar
 B.Tech AI & DS
 Velammal Engineering College
 
-![img](<img width="579" height="338" alt="Screenshot 2025-11-17 075134" src="https://github.com/user-attachments/assets/c8c87fb6-df4d-4bf8-9e7e-7736626752f0" />
-)
-![img](<img width="404" height="315" alt="Screenshot 2025-11-17 075239" src="https://github.com/user-attachments/assets/4a0c5f8b-b1aa-4a04-bdd4-ac6329ef4266" />
-)
-![img](<img width="542" height="323" alt="Screenshot 2025-11-17 075259" src="https://github.com/user-attachments/assets/e91f81bc-8b67-4151-8cb2-9c6eff58fffa" />
-)
-![img](<img width="1080" height="346" alt="Screenshot 2025-11-17 075326" src="https://github.com/user-attachments/assets/bca68908-3d4a-4a73-b163-8a64162a1b91" />
-)
 
 
 
